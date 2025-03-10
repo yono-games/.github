@@ -35,7 +35,7 @@ Let's see the most popular **All Yono Games** apps that you can download right n
    **Minimum Withdraw:** ₹100.00  
    **Version:** 1.0.1  
 
-5. [WinZo](https://yorumly.com/winzo)  
+5. [WinZo](https://winzogoldapk.in/)  
    **Joining Bonus:** ₹550  
    **Minimum Withdraw:** ₹3.00  
    **Version:** 35.1  
