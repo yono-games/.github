@@ -90,7 +90,7 @@ Let's see the most popular **All Yono Games** apps that you can download right n
     **Minimum Withdraw:** ₹100.00  
     **Version:** 1.0.5  
 
-16. [IND Rummy](https://yorumly.com/ind-rummy)  
+16. [Yono VIP](https://yorumly.com/yono-vip)  
     **Joining Bonus:** ₹100 Max  
     **Minimum Withdraw:** ₹100.00  
     **Version:** 2.1  
@@ -135,7 +135,7 @@ Let's see the most popular **All Yono Games** apps that you can download right n
     **Minimum Withdraw:** ₹100.00  
     **Version:** 1.0.1  
 
-25. [VIP Granddaughter](https://yorumly.com/vip-granddaughter)  
+25. [Yono Slots](https://yorumly.com/yono-slots)  
     **Joining Bonus:** ₹38 Max  
     **Minimum Withdraw:** ₹100.00  
     **Version:** 1.0.1  
