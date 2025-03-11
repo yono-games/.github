@@ -90,7 +90,7 @@ Let's see the most popular **All Yono Games** apps that you can download right n
     **Minimum Withdraw:** ₹100.00  
     **Version:** 1.0.5  
 
-16. [IN Rummy](https://yorumly.com/in-rummy)  
+16. [IND Rummy](https://yorumly.com/ind-rummy)  
     **Joining Bonus:** ₹100 Max  
     **Minimum Withdraw:** ₹100.00  
     **Version:** 2.1  
