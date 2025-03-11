@@ -80,7 +80,7 @@ Let's see the most popular **All Yono Games** apps that you can download right n
     **Minimum Withdraw:** ₹100.00  
     **Version:** 1.0.3  
 
-14. [BUT 213](https://yorumly.com/but-213)  
+14. [BET 213](https://yorumly.com/bet-213)  
     **Joining Bonus:** ₹50 Max  
     **Minimum Withdraw:** ₹100.00  
     **Version:** 1.0.3  
@@ -110,7 +110,7 @@ Let's see the most popular **All Yono Games** apps that you can download right n
     **Minimum Withdraw:** ₹100.00  
     **Version:** 1.0.4  
 
-20. [IN 365](https://yorumly.com/in-365)  
+20. [EN 365](https://yorumly.com/en-365)  
     **Joining Bonus:** ₹39 Max  
     **Minimum Withdraw:** ₹100.00  
     **Version:** 1.0.3  
