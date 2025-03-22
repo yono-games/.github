@@ -58,8 +58,8 @@ Here’s a list of the most popular **All Yono Games** apps that you can downloa
    **Minimum Withdraw:** ₹3.00  
    **Version:** 35.1  
 
-6. [66 Rummy](https://yorumly.com/66-rummy)  
-   **Joining Bonus:** ₹20  
+6. [Yono Rummy](https://github.com/yonorummy)  
+   **Joining Bonus:** ₹60  
    **Minimum Withdraw:** ₹100.00  
    **Version:** 1.0.3  
 
