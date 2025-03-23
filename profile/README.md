@@ -161,7 +161,7 @@ Here’s a list of the most popular **All Yono Games** apps that you can downloa
     **Minimum Withdraw:** ₹100.00  
     **Version:** 1.0.4
     
-## ✅ Why Choose **All Yono Games Apps**?  
+## ✅ Why Choose **Yono Games**?  
 
 ✔️ **Free Sign-Up Bonus** – Get a welcome bonus ranging from ₹10 to ₹500 without any initial deposit!  
 ✔️ **Real Cash Withdrawal** – Enjoy hassle-free withdrawals with a minimum limit of ₹100.  
@@ -206,7 +206,7 @@ Here’s a list of the most popular **All Yono Games** apps that you can downloa
 
 ---
 
-## 📱 How to Get Started with **All Yono Games**  
+## 📱 How to Get Started with **Yono Games APK**  
 
 1. **Sign Up for Free** – Register easily with your mobile number or email.  
 2. **Claim Your Bonus** – Get your free sign-up bonus and start playing.  
