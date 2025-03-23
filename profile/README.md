@@ -6,7 +6,7 @@ All Yono Games offers a community of players who share the same passion for gami
 ![All Yono Games](https://raw.githubusercontent.com/yono-games/images/refs/heads/main/Yono-Games-Banner.png
 )
 
-## 🎲 Popular **All Yono Games Apps** to Download  
+## Yono Games List
 
 Here’s a list of the most popular **All Yono Games** apps that you can download right now and start enjoying: 
 
